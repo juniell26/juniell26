@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing game and app and etc.
 - 🌱 I’m currently learning c#/phyton/webdeveloping/ and so on.....
 - I’m looking for an on the job trianing or job if possible.
--i also like cats and nature.
+-i also like cats, dogs and to tyravel in nature.
 - 📫 jjemcoronado@gmail.com  email me and trhank you
 
 <!---
